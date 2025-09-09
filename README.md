@@ -1,4 +1,4 @@
-## Masline Electronics | Component Distribution |Component Suppliers | Components Parts
+## Masline Electronics | Component Distribution | Component Suppliers | Components Parts
 
 Masline is a trusted component distributor and supplier offering custom logistics and high-quality components parts for efficient manufacturing supply.
 
