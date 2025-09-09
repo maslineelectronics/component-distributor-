@@ -66,16 +66,10 @@ Masline is committed to being the partner you can trust for both everyday procur
 
 ## Engage with Masline
 
-If your organization is looking for a dependable **component distributor** or seeking access to trusted **component suppliers** with a wide variety of **components parts**, Masline is here to assist. Contact our team to discuss your sourcing requirements and discover how our custom logistics and supply solutions can streamline your operations and reduce your costs.
+If your organization is looking for a dependable component distributor or seeking access to trusted component suppliers with a wide variety of components parts, Masline is here to assist. Contact our team to discuss your sourcing requirements and discover how our custom logistics and supply solutions can streamline your operations and reduce your costs.
 
 ---
 
-## Relevant Keywords
 
-component distributor, component suppliers, components parts, electronics supply logistics, custom supply solutions, reliable component sourcing, global electronic component suppliers, BOM management, inventory optimization
 
----
 
-## License
-
-This repository is maintained by Masline. All rights reserved.
