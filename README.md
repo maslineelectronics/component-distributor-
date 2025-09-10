@@ -15,7 +15,7 @@ Our mission is simple: to be more than just a supplier. We strive to be your str
 ## What Masline Brings to the Table
 
 ### Comprehensive Component Distribution  
-We maintain access to a vast inventory of authentic, fully traceable components parts sourced from manufacturers worldwide. Whether your project requires standard catalog parts or hard-to-find legacy components, Masline’s distribution network ensures you get what you need — quickly and with confidence.
+We maintain access to a vast inventory of authentic, fully traceable components parts sourced from manufacturers worldwide. Whether your project requires standard catalog parts or hard-to-find legacy components, Masline’s distribution network ensures you get what you need- quickly and with confidence.
 
 ### Global Network of Trusted Component Suppliers  
 Masline collaborates with a global network of verified component suppliers, expanding your sourcing options and reducing lead times. Our stringent supplier vetting process guarantees that every part you receive meets strict quality and compliance standards.
@@ -34,7 +34,7 @@ These services are designed to reduce inventory carrying costs, improve cash flo
 We understand the specialized requirements across industries such as aerospace, defense, medical devices, automotive, and industrial manufacturing. Masline’s team works closely with you to develop sourcing strategies that comply with industry regulations and quality certifications.
 
 ### Dedicated Customer Support  
-Our knowledgeable supply chain professionals are always available to provide technical assistance, resolve supply challenges, and advise on alternative solutions — ensuring your procurement process is as smooth and predictable as possible.
+Our knowledgeable supply chain professionals are always available to provide technical assistance, resolve supply challenges, and advise on alternative solutions - ensuring your procurement process is as smooth and predictable as possible.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------
 
